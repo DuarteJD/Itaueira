@@ -1,2 +1,0 @@
-# Itaueira
-Politica de privacidades
